@@ -1,4 +1,4 @@
-
+custom bridger western Scripts offers the most advanced bridger western Script, with auto-heal and no cooldown. Perfect for dominating any match.
 
 
 
